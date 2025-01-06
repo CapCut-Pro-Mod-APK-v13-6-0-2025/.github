@@ -32,6 +32,12 @@ CapCut MOD APK is an advanced and robust video editing application developed by 
 | **Worldwide Downloads**| 500M+                    |
 | **Rating**            | 4.5                      |
 
+
+## Screenshots
+# ![Screenshots of CapCut Pro APK](https://github.com/CapCut-Pro-Mod-APK-v13-6-0-2025/.github/blob/main/Screenshots/Screenshot%20From%202025-01-06%2017-13-06.png?raw=true)
+# ![Screenshots of CapCut Pro APK](https://github.com/CapCut-Pro-Mod-APK-v13-6-0-2025/.github/blob/main/Screenshots/Screenshot%20From%202025-01-06%2017-13-33.png?raw=true)
+
+
 CapCut MOD APK is the modified version of CapCut, an immensely popular video editing application developed by Bytedance. It allows users to perform advanced video editing tasks and make professional-looking videos on Android devices. The app includes premium features unlocked for free, making it especially attractive to users who do not wish to pay for the premium version. With a rating of 4.5, it has earned a reputation for being reliable and feature-rich.
 
 ## Features
